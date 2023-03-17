@@ -9,4 +9,6 @@ The best hack for a certain anime game.
 
 **[Join our discord!](https://discord.gg/bkebi)**
 
-![](https://ripfreeakebi.top/img/akebidead.png)
+![](https://ripfreeakebi.top/img/akebidead.png)  
+
+![](https://github.com/Bkebi-Group/.github/blob/master/BkebiDead.jpg)
